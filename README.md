@@ -1,1 +1,1 @@
-# last_310_2022
+# Tody is the last day of class
